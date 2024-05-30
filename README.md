@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rio-bel
+- 👋 Hi, I’m rio-bel
 - 😄 Pronouns: he/him/male
 - ⚡ Fun fact: i'm a boy
 
